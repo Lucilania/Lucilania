@@ -1,6 +1,6 @@
 ### Seja Bem vindo!!
 
-<h2 align="center"> Que nossa conexão nós tragamos aprendizados e experiências relevante para nossa jornada!! </h2
+<h2 align="center"> Que nossa conexão nós traga aprendizados e experiências relevante para nossa jornada!! </h2
 ## 
 
 - 🔭 Em processo de transição de carreira.
